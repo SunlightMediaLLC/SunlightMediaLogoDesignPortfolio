@@ -12,3 +12,12 @@ For more information, please visit our [online portfolio](https://sunlightmedia.
 Sunlight Media also offers custom logo design for businesses, products, or anyone looking to improve their online presence and branding. Unlike most design companies, we offer unlimited design revisions for our logo services, fine-tuning the logo until it’s exactly what you’re looking for. With a strong attention to detail, years of professional design experience, our team of designers will ensure that you have a logo that is the perfect fit for your business, custom-tailored to your brand.
 
 Please visit our website for more information on our [logo design services](https://sunlightmedia.org/services/logo-design-services/).
+
+## Contact
+
+Sunlight Media is conveniently located right in the heart of downtown Los Angeles, with offices inside the beautifully-renovated Fine Arts Building. We are available for in-person meetings within the Los Angeles county area. Our operating hours are from 9am – 6pm Monday through Friday, and 9am to 3pm Saturday.
+
+**323.868.3581**
+
+<a href="https://sunlightmedia.org" target="_blank">Sunlight Media</a>
+
